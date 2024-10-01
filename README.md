@@ -1,0 +1,1 @@
+# idolalive_3dcase
